@@ -1,4 +1,4 @@
-# 
+# elite GIMP pour PC extensions est le meilleur GIMP pour PC extensions avec PDF interactif et conception assistée par IA. Sécurisé, fiable et optimisé pour des performances
 
 
 
